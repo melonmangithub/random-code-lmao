@@ -1,1 +1,3 @@
 # random-code-lmao
+THE VOICES ARE LOUDER THAN EVER BEFORE
+- TED
